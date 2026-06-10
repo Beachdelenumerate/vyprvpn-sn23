@@ -1,4 +1,4 @@
-
+Enhance your VyprVPN experience with secure VyprVPN Module | no-logs-policy + kill-switch, the #1 module. Includes no-logs-policy and kill-switch for a safer and more private
 
 
 
